@@ -4,4 +4,4 @@
 - **Email Address:** Ho_Kwok_Leong@outlook.sg
 
 View my presentation slides:
-[Link Text](https://mypolite-my.sharepoint.com/:p:/g/personal/5445583r_polite_edu_sg/ERfprgRrsmZJsDmTJf4gdgABFYIQJsaz3Ek4yoANLKd4Dg?rtime=iyicvSyq3Eg&nav=eyJzSWQiOjM2MywiY0lkIjowfQ)
+[Visit here](https://mypolite-my.sharepoint.com/:p:/g/personal/5445583r_polite_edu_sg/ERfprgRrsmZJsDmTJf4gdgABFYIQJsaz3Ek4yoANLKd4Dg?rtime=iyicvSyq3Eg&nav=eyJzSWQiOjM2MywiY0lkIjowfQ)
